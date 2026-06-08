@@ -29,6 +29,6 @@ Learn more about best [cabinet painting contractor](https://dhapainting.ca/cabin
 
 Explore more about services we provide for [cabinet painting contractor](https://dhapainting.ca/cabinet-painting-refinishing-contractor/)
 
-**Keywords**
+**Tags**
 
 cabinet painting contractor, cabinet refinishing contractor, cabinet painting services, kitchen cabinet painters Canada, cabinet repainting services, cabinet restoration, wood cabinet refinishing, modern cabinet painting, cabinet refinishing experts, professional cabinet painters
